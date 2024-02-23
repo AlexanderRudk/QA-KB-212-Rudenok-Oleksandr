@@ -1,1 +1,0 @@
-# QA-KB-212-Rudenok-Oleksandr
